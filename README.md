@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dapunisher28
+- 👀 I’m interested in Cyber security
+- 🌱 I’m currently persuing Bachelors of computer science at Algoma University
+- 📫 Connect me through email: jsodhi@algomau.ca
+- 😄 Pronouns: he/him
